@@ -1,0 +1,1 @@
+![whiteboard challenge02](./Untitled%20(4).jpg)
